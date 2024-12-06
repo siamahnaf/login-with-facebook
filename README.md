@@ -25,7 +25,7 @@ We are convert cabbage to webinuxs. So you now find our new youtube channel in f
 https://www.youtube.com/@webinuxs
 
 ## Video Url
-https://youtu.be/E33swXzDsnc
+https://youtu.be/3TR2yj3wSVQ
 
 ## Screenshot
 ![Screenshot](https://lh3.googleusercontent.com/d/1LoImIIT-5lbUGE3llXM7F9q07UCtDPC0)
